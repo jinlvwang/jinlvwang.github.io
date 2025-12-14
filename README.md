@@ -1,2 +1,0 @@
-# jinlvwang.github.io
-bolg
